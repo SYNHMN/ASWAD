@@ -2,9 +2,9 @@
 
 For the first and greatest believer in me.
 
-01 KOBO ABE 4:16
+1. KOBO ABE 4:16
 
-02 SY 8:36
+2. SY 8:36
 
 03 ASAI 2:09
 
