@@ -10,9 +10,9 @@ For the first and greatest believer in me.
 
 4. MURE 3:36
 
-5. SOMA 5:58
+5. SOMA 4:25
 
-6. 69 1:28
+6. 69 2:15
 
 7. P239 3:12
 
