@@ -25,4 +25,4 @@ For the first and greatest believer in me.
 
 ## Preview
 
-![](https://raw.githubusercontent.com/SYNHMN/ASWAD/main/preview/Preview-1.png)
+![](https://raw.githubusercontent.com/SYNHMN/ASWAD/main/preview/Preview-1.png?token=GHSAT0AAAAAAB7T4PIYWLLHOMLVTF72YKLYZAFL2BQ)
